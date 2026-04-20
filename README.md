@@ -1,0 +1,3 @@
+I was sitting thinking about life...and got this though...A 3D world with only logic gates...not sure if imma complete it cause its on a whimp
+
+This is solely for fun and will continue only till i want. unless i start liking it...
